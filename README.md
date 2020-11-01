@@ -1,4 +1,4 @@
-### Hi there,i'm From Odisha,India 👋
+### Hi there,i'm Pradeep From Odisha,India 👋
 
 ### I'm a Student,Developer and Automation Tester
 
